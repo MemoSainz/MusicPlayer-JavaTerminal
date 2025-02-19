@@ -47,5 +47,5 @@
 <br>
 
 
-<b> All lefts reserved 	&#169; Memo Sainz 2024 </b>
+<b> All lefts reserved 	&#169; Memo Sainz 2025 </b>
 </div>
